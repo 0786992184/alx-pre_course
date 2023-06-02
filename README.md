@@ -1,2 +1,2 @@
 My first readme
-I'M SANO KABAYIZA JULES
+I'M SANO KABAYIZA Jules
